@@ -33,4 +33,18 @@ combination. As a result, you get a tender and
 crumbly dish for dinner. I strongly advise you
 to cook it
 
+The main role in this dish is suitable for any
+sea fish with white meat - in general, you can
+come up with a lot of options on this topic.
+It is good that in this recipe for cooking fish
+with rice and onions, everything is done together
+- the ingredients soak up the flavors of each
+other. The fish is simmered together with the
+rice, preserving its flavor and nutritional properties.
+Adding garlic, leeks and herbs dramatically changes the
+fflavor of the rice. 
+
+
+
+
 
