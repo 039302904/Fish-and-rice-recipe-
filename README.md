@@ -42,7 +42,11 @@ with rice and onions, everything is done together
 other. The fish is simmered together with the
 rice, preserving its flavor and nutritional properties.
 Adding garlic, leeks and herbs dramatically changes the
-fflavor of the rice. 
+fflavor of the rice.
+
+In short, rice with fish is a good idea to combine
+the two components in one dish. This recipe will
+help you to diversify your daily menu.
 
 
 
