@@ -26,3 +26,11 @@ Secondly, this recipe offers a quick cooking
 option for fish with a side dish. It will suit
 those people who like to cook everything in one
 go.
+
+It turns out very tasty and healthy dish! Rice
+and fish is a classic dietary
+combination. As a result, you get a tender and
+crumbly dish for dinner. I strongly advise you
+to cook it
+
+
