@@ -1,4 +1,4 @@
-# Fish-and-rice-recipe-
+# Fish and rice recipe
 
 Rice 250g
 
